@@ -1,1 +1,1 @@
-# Innovating the trading experience with TradeSector
+# Providing education and conditioning for every investor
